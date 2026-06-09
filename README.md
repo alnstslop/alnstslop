@@ -7,6 +7,9 @@
 ㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ 
 ㅤㅤㅤ
 ㅤ ㅤ ㅤㅤ ㅤ 
+<p align="center">
+  <img width="460" height="300" src="https://cdn.discordapp.com/attachments/1282985399051878441/1513918327607791627/Screenshot_20260608_222634_com_discord_MainActivity.jpg?ex=6a2979d0&is=6a282850&hm=2ccd34b34942a7404d9568ccec1e45f665b2cace6ebb8e71096577dcfe4e1662&/460/300">
+</p>
 
 
 
