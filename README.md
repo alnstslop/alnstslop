@@ -30,6 +30,16 @@
 
 
 
+
+
+
+
+
+<p align="center">
+  <img width="460" height="300" src="https://cdn.discordapp.com/attachments/1282985399051878441/1516914038586478784/Untitled74_20260618051431.png?ex=6a345fc9&is=6a330e49&hm=327ddb598437ffcec8037812973a14b6f17666c7a96131d6ef8fc54612f36700&/460/300">
+</p>
+
+
 <!--
 **TillsBodyPillow/TillsBodyPillow** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
