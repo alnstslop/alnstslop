@@ -18,9 +18,8 @@
  ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ 
 
 <br/>ㅤㅤㅤ
-ㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤ![get out](https://visitor-badge.laobi.icu/badge?page_id=KISSINGSTRANGERS)
+ㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤ![no](https://visitor-badge.laobi.icu/badge?page_id=username.visitor-badge&left_text=stalkers&left_color=%23ff033d&right_color=%23b8b8b8)
 
-![no](https://visitor-badge.laobi.icu/badge?page_id=username.visitor-badge&left_text=stalkers&left_color=%23ff033d&right_color=%23b8b8b8)
 
 ㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤ 
 
