@@ -45,6 +45,8 @@
   <img width="460" height="300" src="https://cdn.discordapp.com/attachments/1282985399051878441/1517475273438789762/Untitled76_20260619182238.png?ex=6a366a7a&is=6a3518fa&hm=b10262264da2385b8e351f0231aae463d231c5c4483f604b632a152cdd5fda71&/460/300">
 </p>
 
+**<p align="center">thats all i have for now because i dont want to make this readme that much longer,but please!! watch out for this person. they're rude.</p>**
+
 
 
 
