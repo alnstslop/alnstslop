@@ -1,7 +1,7 @@
 
 ㅤㅤㅤ
 ㅤ ㅤ ㅤㅤ ㅤ 
-
+**<p align="center">17ㅤㅤㅤㅤㅤhe him</p>**
 
 
 ㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ 
@@ -40,7 +40,7 @@
 </p>
 
 
-**<p align="center">SHE IS VERY EVIL.</p>**
+**<p align="center">SHE IS VERY EVIL...</p>**
 
 
 
