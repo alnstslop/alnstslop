@@ -24,10 +24,6 @@
 <br/>
 
 ㅤㅤㅤ
-ㅤ ㅤ ㅤㅤ ㅤ 
-
-
-
 ㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ![get out](https://visitor-badge.laobi.icu/badge?page_id=KISSINGSTRANGERS)
 
 ㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤ 
