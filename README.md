@@ -35,6 +35,20 @@
 </p>
 
 
+**<p align="center">and this is also to talk about my allegations made this user underneath this text...</p>**
+<p align="center">
+  <img width="460" height="300" src="https://cdn.discordapp.com/attachments/1282985399051878441/1517475273925333082/Untitled78_20260619182338.png?ex=6a366a7a&is=6a3518fa&hm=43aac7ab9da4f8f44bd12bb3029c269913c35e3d3b89f871fb45b8f6b1505efd&/460/300">
+</p>
+
+**<p align="center">the SHEER audacity of this person is insane when ive done nothing to them and blaming me for nothing??? and not to mention they've harassed me multiple of times TOO!!! it makes me so mad and sad for getting blamed for nothing. the picture underneath this is the proof...</p>**
+<p align="center">
+  <img width="460" height="300" src="https://cdn.discordapp.com/attachments/1282985399051878441/1517475273438789762/Untitled76_20260619182238.png?ex=6a366a7a&is=6a3518fa&hm=b10262264da2385b8e351f0231aae463d231c5c4483f604b632a152cdd5fda71&/460/300">
+</p>
+
+
+
+
+
 
 
 
