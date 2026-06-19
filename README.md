@@ -14,7 +14,9 @@
 ㅤㅤㅤ
 ㅤ ㅤ ㅤㅤ ㅤ 
 <p align="center">
-  <img width="460" height="300" src="https://cdn.discordapp.com/attachments/1282985399051878441/1513918327607791627/Screenshot_20260608_222634_com_discord_MainActivity.jpg?ex=6a2979d0&is=6a282850&hm=2ccd34b34942a7404d9568ccec1e45f665b2cace6ebb8e71096577dcfe4e1662&/460/300">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31jognmqcrmjul3ucandfsvzsvqu&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31jognmqcrmjul3ucandfsvzsvqu&cover_image=true&theme=spotify-embed&show_offline=true&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=ff0000&bar_color_cover=true&mode=dark">
+  </a>
 </p>
 
 
