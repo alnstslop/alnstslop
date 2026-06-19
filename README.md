@@ -16,12 +16,13 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jognmqcrmjul3ucandfsvzsvqu&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=000000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31jognmqcrmjul3ucandfsvzsvqu&redirect=true)
 
 
-ㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ 
-
+ㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ
  ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ 
-
 <br/>ㅤㅤㅤ
 ㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤ![no](https://visitor-badge.laobi.icu/badge?page_id=username.visitor-badge&left_text=stalkers&left_color=%23ff033d&right_color=%23b8b8b8)
+
+
+
 
 
 
