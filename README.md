@@ -18,9 +18,7 @@
 
  ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ 
 
-<br/>
-
-ㅤㅤㅤ
+<br/>ㅤㅤㅤ
 ㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤ![get out](https://visitor-badge.laobi.icu/badge?page_id=KISSINGSTRANGERS)
 
 ㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤ 
