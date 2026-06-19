@@ -23,6 +23,11 @@
 <br/>ㅤㅤㅤ
 ㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤ![no](https://visitor-badge.laobi.icu/badge?page_id=username.visitor-badge&left_text=stalkers&left_color=%23ff033d&right_color=%23b8b8b8)
 
+<p align="center">
+  <img width="560" height="100" src="https://cdn.discordapp.com/attachments/1282985399051878441/1517448402420498452/line-goss-g2.gif?ex=6a365173&is=6a34fff3&hm=bb53e0cea4300218596f02097d1905b944ed42231d230893fe93b170fc7a1903&/460/300">
+</p>
+
+
 
 ㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤ 
 
