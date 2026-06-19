@@ -10,8 +10,7 @@
 ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ 
 ㅤㅤㅤ
 ㅤ ㅤ ㅤㅤ ㅤ 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jognmqcrmjul3ucandfsvzsvqu&cover_image=true&theme=spotify-embed&show_offline=true&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=ff0000&bar_color_cover=true&mode=dark)](https://spotify-github-profile.kittinanx.com/api/view?uid=31jognmqcrmjul3ucandfsvzsvqu&redirect=true)
-
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jognmqcrmjul3ucandfsvzsvqu&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=000000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31jognmqcrmjul3ucandfsvzsvqu&redirect=true)
 
 
 ㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ 
