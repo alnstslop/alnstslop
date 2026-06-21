@@ -49,8 +49,9 @@
 
 **<p align="center">and this is also to talk about my allegations made bythis user underneath this text...</p>**
 <p align="center">
-  <img width="460" height="300" src="https://cdn.discordapp.com/attachments/1282985399051878441/1517475273925333082/Untitled78_20260619182338.png?ex=6a366a7a&is=6a3518fa&hm=43aac7ab9da4f8f44bd12bb3029c269913c35e3d3b89f871fb45b8f6b1505efd&/460/300">
+  <img width="460" height="300" src="https://cdn.discordapp.com/attachments/1282985399051878441/1518162364887728288/Untitled78_20260621155453.png?ex=6a38ea61&is=6a3798e1&hm=2704c7dba33e5a96897e3467c86c928a1af11377a6a8859c369776e42b65d781&/460/300">
 </p>
+
 
 **<p align="center">the SHEER audacity of this person is insane when ive done nothing to them and blaming me for nothing??? and not to mention they've harassed me multiple of times TOO!!! it makes me so mad and sad for getting blamed for nothing. the picture underneath this is the proof...</p>**
 <p align="center">
