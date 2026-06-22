@@ -41,13 +41,13 @@
 
 
 
-
+**<p align="center">me,moskito and some randos</p>**
 <p align="center">
   <img width="460" height="300" src="https://cdn.discordapp.com/attachments/1514726663089295454/1518533145258102854/Screenshot_20260622_162536.jpg?ex=6a3a43b2&is=6a38f232&hm=6e232abc9d789c49d38ed8fa89205e158c8ea898b3f693b8059d9288af3ed393&/460/300">
 </p>
 
 
-**<p align="center">this is also to address about my so-called "allegations made bythis user underneath this text...</p>**
+**<p align="center">and also sorry for breaking the mood but..this is also to address about my so-called "allegations made bythis user underneath this text...</p>**
 <p align="center">
   <img width="460" height="300" src="https://cdn.discordapp.com/attachments/1282985399051878441/1518162364887728288/Untitled78_20260621155453.png?ex=6a38ea61&is=6a3798e1&hm=2704c7dba33e5a96897e3467c86c928a1af11377a6a8859c369776e42b65d781&/460/300">
 </p>
