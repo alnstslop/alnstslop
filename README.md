@@ -2,7 +2,7 @@
   <img width="560" height="100" src="https://cdn.discordapp.com/attachments/1282985399051878441/1517448402147872868/line-tako01.gif?ex=6a365173&is=6a34fff3&hm=435e049c2b865be9cc1f1b6c3aabe05cfedfb63915491ff80c24c90b0a5650b9&/760/600">
 </p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤ   ㅤ[sign ata](https://centivan.atabook.org)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  ㅤ   ㅤ[sign ata](https://centivan.atabook.org)
 ㅤ ㅤ ㅤㅤ ㅤ 
 **<p align="center">17ㅤㅤㅤㅤheㅤㅤhim</p>**
 **<p align="center">filㅤㅤeng</p>**
