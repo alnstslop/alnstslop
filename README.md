@@ -41,7 +41,7 @@
 
 
 
-**<p align="center">me,moskito and some randos</p>**
+**<p align="center">me, moskito and some randos</p>**
 <p align="center">
   <img width="460" height="300" src="https://cdn.discordapp.com/attachments/1514726663089295454/1518533145258102854/Screenshot_20260622_162536.jpg?ex=6a3a43b2&is=6a38f232&hm=6e232abc9d789c49d38ed8fa89205e158c8ea898b3f693b8059d9288af3ed393&/460/300">
 </p>
