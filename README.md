@@ -41,9 +41,9 @@
 
 
 
-**<p align="center">this readme is also a warning, if youre not aware. Theres someone on pt that i know, they're rude and harassed me and my friends multiple of times. proof is the picture below...</p>**
+
 <p align="center">
-  <img width="460" height="300" src="https://cdn.discordapp.com/attachments/1282985399051878441/1516914038586478784/Untitled74_20260618051431.png?ex=6a345fc9&is=6a330e49&hm=327ddb598437ffcec8037812973a14b6f17666c7a96131d6ef8fc54612f36700&/460/300">
+  <img width="460" height="300" src="https://cdn.discordapp.com/attachments/1514726663089295454/1518533145258102854/Screenshot_20260622_162536.jpg?ex=6a3a43b2&is=6a38f232&hm=6e232abc9d789c49d38ed8fa89205e158c8ea898b3f693b8059d9288af3ed393&/460/300">
 </p>
 
 
