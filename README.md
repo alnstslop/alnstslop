@@ -53,7 +53,6 @@
 **<p align="center">and also sorry for breaking the mood but..this is also to address about my so-called "allegations made bythis user underneath this text...</p>**
 <p align="center">
   <img width="460" height="300" src="https://cdn.discordapp.com/attachments/1282985399051878441/1518162364887728288/Untitled78_20260621155453.png?ex=6a38ea61&is=6a3798e1&hm=2704c7dba33e5a96897e3467c86c928a1af11377a6a8859c369776e42b65d781&/460/300">
-</p> <img src="https://cdn.discordapp.com/attachments/1514726663089295453/1519269438635901019/Screenshot_20260624_171337_com_android_chrome_ChromeTabbedActivity.jpg?ex=6a3cf16c&is=6a3b9fec&hm=b358b2d267a030082df6238c03fa4abed0c88d64a68281b57192ea52118e7c55&" width="20%"> </p> <img src="https://cdn.discordapp.com/attachments/1282985399051878441/1519263685581733919/Screenshot_20260624_164609_com_android_chrome_ChromeTabbedActivity.jpg?ex=6a3cec11&is=6a3b9a91&hm=24fc917cb691ea2a5f63b0f1df3a404733f2c0b0b60da860ff3fe8af4feb5c71&" width="20%"></p> <img src="https://cdn.discordapp.com/attachments/1282985399051878441/1519270677629108284/Screenshot_20260624_165609_com_android_chrome_ChromeTabbedActivity.jpg?ex=6a3cf294&is=6a3ba114&hm=1e1f3a696d07a393ffa34b66d921e9d06b46f4423038a15979449c896fa69f1a&" width="20%">
 
 
 
