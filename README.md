@@ -46,6 +46,9 @@
   <img width="460" height="300" src="https://cdn.discordapp.com/attachments/1514726663089295454/1518533145258102854/Screenshot_20260622_162536.jpg?ex=6a3a43b2&is=6a38f232&hm=6e232abc9d789c49d38ed8fa89205e158c8ea898b3f693b8059d9288af3ed393&/460/300">
 </p>
 
+<img src="https://cdn.discordapp.com/attachments/1514726663089295453/1519269438635901019/Screenshot_20260624_171337_com_android_chrome_ChromeTabbedActivity.jpg?ex=6a3cf16c&is=6a3b9fec&hm=b358b2d267a030082df6238c03fa4abed0c88d64a68281b57192ea52118e7c55&" width="30%">
+
+
 
 **<p align="center">and also sorry for breaking the mood but..this is also to address about my so-called "allegations made bythis user underneath this text...</p>**
 <p align="center">
