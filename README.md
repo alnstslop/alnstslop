@@ -1,7 +1,4 @@
-  <p align="center">
-  <img width="200" height="100" src="https://cdn.discordapp.com/attachments/1282985399051878441/1520302455479341058/HnVideoEditor_2026_06_27_133854723.gif?ex=6a40b37f&is=6a3f61ff&hm=5ad5b24b13e7908f236cc2c73947f2e54f9f45614557f380910b9835ed371c6e&/760/600">
-</p>
-  
+
   
   <p align="center">
   <img width="560" height="100" src="https://cdn.discordapp.com/attachments/1282985399051878441/1517448402147872868/line-tako01.gif?ex=6a365173&is=6a34fff3&hm=435e049c2b865be9cc1f1b6c3aabe05cfedfb63915491ff80c24c90b0a5650b9&/760/600">
