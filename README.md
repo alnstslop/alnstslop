@@ -1,4 +1,4 @@
-
+ 
   
   <p align="center">
   <img width="560" height="100" src="https://cdn.discordapp.com/attachments/1282985399051878441/1517448402147872868/line-tako01.gif?ex=6a365173&is=6a34fff3&hm=435e049c2b865be9cc1f1b6c3aabe05cfedfb63915491ff80c24c90b0a5650b9&/760/600">
@@ -67,6 +67,9 @@
 
 **<p align="center">thats all i have for now because i dont want to make this readme that much longer,but please!! watch out for this person. they're rude.</p>**
 
+<p align="center">
+  <img width="460" height="300" src="https://cdn.discordapp.com/attachments/1282985399051878441/1520801916861415434/Untitled97_20260628224329.png?ex=6a4284a8&is=6a413328&hm=0c16c2e9e379f3dca6bd9a3c3da59bcb34b15143c717f62e8c78a6bd6fcdb4a6&/460/300">
+</p>
 
 
 
