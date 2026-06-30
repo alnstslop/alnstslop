@@ -1,4 +1,4 @@
-**<p align="center">WTF OMg Hi</p>** [title-town](https://github.com/title-town) **pt's till~**
+**<p align="center">WTF OMg Hi [title-town](https://github.com/title-town) pt's till~</p>** **
 
 
 <p align="center">
