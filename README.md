@@ -74,6 +74,13 @@
 
 **<p align="center">thats all i have for now because i dont want to make this readme that much longer,but please!! watch out for this person. they're rude.</p>**
 
+<p align="center">
+  <img width="360" height="300" src="https://cdn.discordapp.com/attachments/1282985399051878441/1521466267783925902/Screenshot_20260630_160846_com_discord_MainActivity.jpg?ex=6a44ef61&is=6a439de1&hm=8bbbec88d276e000bb410fb2360024cc3b72b716bbe6c86055631bf0d95c6620&/460/300">
+</p>
+
+**<p align="center">watch out for @yellowmugqs theyre a dnager</p>**
+
+
 
 
 
