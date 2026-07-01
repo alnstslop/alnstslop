@@ -1,4 +1,4 @@
-**<p align="center">Hi domt harass anyone shown here, they're my friends and this is all a joke so dont take it seriously~</p>**
+**<p align="center">Hi dont harass or flame anyone shown here, they're my friends and this is all a joke so dont take it seriously~</p>**
 
 **<p align="center">[title-town](https://github.com/title-town) ponytown's till~</p>**
 
