@@ -2,7 +2,7 @@
 
 # ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-**<p align="center">[title-town](https://github.com/title-town) ponytown's till~</p>**
+**<p align="center">[title-town](https://github.com/title-town) ponytown's till</p>**
 
 
 <p align="center">
