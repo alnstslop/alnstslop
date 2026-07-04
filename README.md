@@ -1,4 +1,4 @@
-<sub>bruh</sub>
+
 
 
 # ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
@@ -16,8 +16,8 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  ㅤ   ㅤ[sign ata](https://centivan.atabook.org)
 ㅤ ㅤ ㅤㅤ ㅤ 
-**<p align="center">17ㅤㅤㅤㅤheㅤㅤhim</p>**
-**<p align="center">filㅤㅤeng</p>**
+**<p align="center"><sub>17ㅤㅤㅤㅤheㅤㅤhim</sub></p>**
+**<p align="center"><sub>filㅤㅤeng</sub></p>**
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤ[spade](https://github.com/Tordcest)ㅤㅤㅤ[toxic](https://github.com/zomstidol)ㅤㅤㅤ [amy](https://github.com/Ghost1amy)
 
