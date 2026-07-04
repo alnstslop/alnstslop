@@ -39,7 +39,7 @@
 
 
 <p align="center">
-  <img width="590" height="90" src="https://cdn.discordapp.com/attachments/1282985399051878441/1517448402420498452/line-goss-g2.gif?ex=6a365173&is=6a34fff3&hm=bb53e0cea4300218596f02097d1905b944ed42231d230893fe93b170fc7a1903&/460/100">
+  <img width="600" height="90" src="https://cdn.discordapp.com/attachments/1282985399051878441/1517448402420498452/line-goss-g2.gif?ex=6a365173&is=6a34fff3&hm=bb53e0cea4300218596f02097d1905b944ed42231d230893fe93b170fc7a1903&/460/100">
 </p>
 
 
