@@ -1,4 +1,5 @@
-<sup>bruh</sup>
+<sub>bruh</sub>
+
 
 # ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
