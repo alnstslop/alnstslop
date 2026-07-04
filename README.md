@@ -1,4 +1,4 @@
-<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=https%3A%2F%2Ffonts.google.com%2Fshare%3Fselection.family%3DYuyu';&size=13&duration=3000&pause=1000&color=C71212&background=FFFFFF00&center=true&multiline=true&width=435&lines=and+i+want+it+all+the+time;+while+i'm+yours+and+you+are+mine" alt="Typing SVG" /></a></p>p>
+<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=https%3A%2F%2Ffonts.google.com%2Fshare%3Fselection.family%3DYuyu';&size=13&duration=3000&pause=1000&color=C71212&background=FFFFFF00&center=true&multiline=true&width=435&lines=and+i+want+it+all+the+time;+while+i'm+yours+and+you+are+mine" alt="Typing SVG" /></a></p>
 
 
 # ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
