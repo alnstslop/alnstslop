@@ -1,6 +1,6 @@
 
 <p align="center">
-  <img width="100" height="90" src="https://cdn.discordapp.com/attachments/1282985399051878441/1524627887473557627/Untitled103_20260709120630.png?ex=6a506fde&is=6a4f1e5e&hm=2f60f080b65ad23640a5705390d66e9343f5cac88222652d8906b8d856a1b0f7&">
+  <img width="200" height="100" src="https://cdn.discordapp.com/attachments/1282985399051878441/1524627887473557627/Untitled103_20260709120630.png?ex=6a506fde&is=6a4f1e5e&hm=2f60f080b65ad23640a5705390d66e9343f5cac88222652d8906b8d856a1b0f7&">
 </p>
 
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=https%3A%2F%2Ffonts.google.com%2Fshare%3Fselection.family%3DYuyu';&size=13&duration=3000&pause=1000&color=C71212&background=FFFFFF00&center=true&multiline=true&width=435&lines=and+i+want+it+all+the+time;+while+i'm+yours+and+you+are+mine" alt="Typing SVG" /></a></p>
