@@ -51,7 +51,7 @@
 #
 
 <p align="center">
-  <img width="560" height="400" src="https://cdn.discordapp.com/attachments/1282985399051878441/1525289471568777327/Screenshot_20260711_075338_com_android_chrome_ChromeTabbedActivity.jpg?ex=6a52d804&is=6a518684&hm=27018912e702dafd35b61793dd9eb322c83ac370d134fa20897104bd8dbae01d&">
+  <img width="460" height="300" src="https://cdn.discordapp.com/attachments/1282985399051878441/1525289471568777327/Screenshot_20260711_075338_com_android_chrome_ChromeTabbedActivity.jpg?ex=6a52d804&is=6a518684&hm=27018912e702dafd35b61793dd9eb322c83ac370d134fa20897104bd8dbae01d&">
 </p>
 
 ㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤ 
