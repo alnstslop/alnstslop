@@ -20,11 +20,12 @@
 </p>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  ㅤ   ㅤ[sign ata](https://centivan.atabook.org)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  ㅤ   ㅤ[prns.p](https://en.pronouns.page/@Flibbert)
 ㅤ ㅤ ㅤㅤ ㅤ 
 **<p align="center"><sub>17ㅤㅤㅤㅤheㅤㅤhim</sub></p>**
 **<p align="center"><sub>filㅤㅤeng</sub></p>**
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤ[spade](https://github.com/Tordcest)ㅤㅤㅤ[toxic](https://github.com/zomstidol)ㅤㅤㅤ [amy](https://github.com/Ghost1amy)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤ[spade](https://github.com/Tordcest)ㅤㅤㅤ[toxic](https://github.com/hcwlf)ㅤㅤㅤ [amy](https://github.com/Ghost1amy)
 
 
 ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ 
