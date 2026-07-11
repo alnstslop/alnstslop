@@ -64,7 +64,7 @@
 
 ㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤ 
 
-
+**<p align="center"><sub>me and spade and amy awee ⁠♡</sub></p>**
 
 
 <!--
