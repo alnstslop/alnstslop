@@ -58,17 +58,7 @@
 <p align="center"><img width="560" height="100" src="https://cdn.discordapp.com/attachments/1282985399051878441/1527631324553150484/Untitled111_20260717190109.png?ex=6a5b5d09&is=6a5a0b89&hm=255566911eb1e89a6d5883b84a2137b44cc68475b05bcefbc73c15db972b7c33&"  width="20%"></p>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  ㅤ   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  ㅤ   ㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  ㅤ   ㅤ
-<p align="center">
-  <img width="460" height="300" src="https://cdn.discordapp.com/attachments/1282985399051878441/1525289471568777327/Screenshot_20260711_075338_com_android_chrome_ChromeTabbedActivity.jpg?ex=6a52d804&is=6a518684&hm=27018912e702dafd35b61793dd9eb322c83ac370d134fa20897104bd8dbae01d&">
-</p>
 
-<p align="center">
-  <img width="200" height="130" src="https://cdn.discordapp.com/attachments/1282985399051878441/1524627887473557627/Untitled103_20260709120630.png?ex=6a506fde&is=6a4f1e5e&hm=2f60f080b65ad23640a5705390d66e9343f5cac88222652d8906b8d856a1b0f7&">
-</p>
-ㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤ 
-
-**<p align="center"><sub>me and spade and amy awee ⁠♡</sub></p>**
 
 
 <!--
