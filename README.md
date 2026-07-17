@@ -15,7 +15,7 @@
  
   
   <p align="center">
-  <img width="560" height="100" src="https://cdn.discordapp.com/attachments/1282985399051878441/1527625227595677887/ezgif.com-gif-maker.gif?ex=6a5b575c&is=6a5a05dc&hm=9b10fc3d33771cc0b8cb9f60060aebf279dd9691a9418149ba9bc3a43e9d7933&">
+  <img width="560" height="100" src="https://cdn.discordapp.com/attachments/1282985399051878441/1517448402147872868/line-tako01.gif?ex=6a5b3b73&is=6a59e9f3&hm=601a4c40cf6e737ecb3901dc6011f0cd0efb7cf86d05e9db4864b12af06b09f6&">
 </p>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  ㅤ   ㅤ[guns.lol](https://guns.lol/alnstslop)
@@ -44,7 +44,7 @@
 
 
 <p align="center">
-  <img width="600" height="90" src="https://cdn.discordapp.com/attachments/1282985399051878441/1527625228056793098/ezgif.com-gif-maker_1.gif?ex=6a5b575c&is=6a5a05dc&hm=fb2fd4f2c9363595ec3b3d27f62540019da1710364511a9b360414507934534c&">
+  <img width="600" height="90" src="https://cdn.discordapp.com/attachments/1282985399051878441/1517448402420498452/line-goss-g2.gif?ex=6a5b3b73&is=6a59e9f3&hm=aecdc48b2f0ec3329dd09639f312059cdacb07aace2e3ed7005c242bed91e365&">
 </p>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  ㅤ   ㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  ㅤ   ㅤ
