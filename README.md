@@ -21,8 +21,8 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  ㅤ   ㅤ[guns.lol](https://guns.lol/alnstslop)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  ㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  ㅤ   ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  ㅤ   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   ㅤ ㅤㅤ 
 ㅤ ㅤ ㅤㅤ ㅤ 
-**<p align="center"><sub>17ㅤㅤㅤㅤheㅤㅤhim</sub></p>**
-**<p align="center"><sub>filㅤㅤeng</sub></p>**
+**<p align="center"><sub>17ㅤㅤ![yay](https://cdn.discordapp.com/attachments/1282985399051878441/1527632821554905188/pnno41.gif?ex=6a5b5e6e&is=6a5a0cee&hm=7edbd7b9b57171ef17eb076e4ee0b57c02864dbda19fa5fe81ca3997a2cddf48&)ㅤㅤheㅤㅤhim</sub></p>**
+**<p align="center"><sub>filㅤ![no](https://cdn.discordapp.com/attachments/1282985399051878441/1527632820971769948/el26d5.gif?ex=6a5b5e6e&is=6a5a0cee&hm=066687dd0df40f2dd10a7f5bbab31851a44256a4edfeaad3ddfab00c645d337d&)ㅤeng</sub></p>**
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤ[spade](https://github.com/Tordcest)ㅤㅤㅤ[toxic](https://github.com/hcwlf)ㅤㅤㅤ [amy](https://github.com/Ghost1amy)
 
