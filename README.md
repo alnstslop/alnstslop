@@ -1,4 +1,4 @@
-
+<p align="center"><img width="560" height="100" src="https://cdn.discordapp.com/attachments/1282985399051878441/1527629475368669204/Untitled110_20260717185403.png?ex=6a5b5b50&is=6a5a09d0&hm=0519b4eba44d7f57ecbb4aff1145458bf136681507b8a1cc1f319cd20b790056&"  width="20%"></p>
 
 
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=https%3A%2F%2Ffonts.google.com%2Fshare%3Fselection.family%3DYuyu';&size=13&duration=3000&pause=1000&color=C71212&background=FFFFFF00&center=true&multiline=true&width=435&lines=and+i+want+it+all+the+time;+while+i'm+yours+and+you+are+mine" alt="Typing SVG" /></a></p>
