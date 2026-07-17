@@ -1,7 +1,5 @@
 
-<p align="center">
-  <img width="200" height="130" src="https://cdn.discordapp.com/attachments/1282985399051878441/1524627887473557627/Untitled103_20260709120630.png?ex=6a506fde&is=6a4f1e5e&hm=2f60f080b65ad23640a5705390d66e9343f5cac88222652d8906b8d856a1b0f7&">
-</p>
+
 
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=https%3A%2F%2Ffonts.google.com%2Fshare%3Fselection.family%3DYuyu';&size=13&duration=3000&pause=1000&color=C71212&background=FFFFFF00&center=true&multiline=true&width=435&lines=and+i+want+it+all+the+time;+while+i'm+yours+and+you+are+mine" alt="Typing SVG" /></a></p>
 
@@ -62,6 +60,9 @@
   <img width="460" height="300" src="https://cdn.discordapp.com/attachments/1282985399051878441/1525289471568777327/Screenshot_20260711_075338_com_android_chrome_ChromeTabbedActivity.jpg?ex=6a52d804&is=6a518684&hm=27018912e702dafd35b61793dd9eb322c83ac370d134fa20897104bd8dbae01d&">
 </p>
 
+<p align="center">
+  <img width="200" height="130" src="https://cdn.discordapp.com/attachments/1282985399051878441/1524627887473557627/Untitled103_20260709120630.png?ex=6a506fde&is=6a4f1e5e&hm=2f60f080b65ad23640a5705390d66e9343f5cac88222652d8906b8d856a1b0f7&">
+</p>
 ㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤ 
 
 **<p align="center"><sub>me and spade and amy awee ⁠♡</sub></p>**
