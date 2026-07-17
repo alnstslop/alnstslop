@@ -15,7 +15,7 @@
  
   
   <p align="center">
-  <img width="560" height="100" src="https://cdn.discordapp.com/attachments/1282985399051878441/1517448402147872868/line-tako01.gif?ex=6a365173&is=6a34fff3&hm=435e049c2b865be9cc1f1b6c3aabe05cfedfb63915491ff80c24c90b0a5650b9&/760/600">
+  <img width="560" height="100" src="https://cdn.discordapp.com/attachments/1282985399051878441/1527625227595677887/ezgif.com-gif-maker.gif?ex=6a5b575c&is=6a5a05dc&hm=9b10fc3d33771cc0b8cb9f60060aebf279dd9691a9418149ba9bc3a43e9d7933&">
 </p>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  ㅤ   ㅤ[guns.lol](https://guns.lol/alnstslop)
