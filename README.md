@@ -69,7 +69,7 @@
 #
 
 
-<p align="center"><img width="560" height="100" src="https://cdn.discordapp.com/attachments/1282985399051878441/1527631324553150484/Untitled111_20260717190109.png?ex=6a5b5d09&is=6a5a0b89&hm=255566911eb1e89a6d5883b84a2137b44cc68475b05bcefbc73c15db972b7c33&"  width="20%"></p>
+![Dark Mode Logo](https://cdn.discordapp.com/attachments/1282985399051878441/1527631324553150484/Untitled111_20260717190109.png?ex=6a5b5d09&is=6a5a0b89&hm=255566911eb1e89a6d5883b84a2137b44cc68475b05bcefbc73c15db972b7c33&)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  ㅤ   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  ㅤ   ㅤ
 
