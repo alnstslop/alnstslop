@@ -24,6 +24,9 @@
 **<p align="center"><sub>17ㅤㅤ![yay](https://cdn.discordapp.com/attachments/1282985399051878441/1527632821554905188/pnno41.gif?ex=6a5b5e6e&is=6a5a0cee&hm=7edbd7b9b57171ef17eb076e4ee0b57c02864dbda19fa5fe81ca3997a2cddf48&)ㅤㅤheㅤㅤhim</sub></p>**
 **<p align="center"><sub>filㅤ![no](https://cdn.discordapp.com/attachments/1282985399051878441/1527632820971769948/el26d5.gif?ex=6a5b5e6e&is=6a5a0cee&hm=066687dd0df40f2dd10a7f5bbab31851a44256a4edfeaad3ddfab00c645d337d&)ㅤeng</sub></p>**
 
+
+**<p align="center"><sub>my gang ![yes](https://cdn.discordapp.com/attachments/1282985399051878441/1527632821261172746/yj8km1.gif?ex=6a5b5e6e&is=6a5a0cee&hm=fd14b0b24037de90f26fe290c01259be4d9e66d4b905a423da25fc4610d216df&)</sub></p>**
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤ[spade](https://github.com/Tordcest)ㅤㅤㅤ[toxic](https://github.com/hcwlf)ㅤㅤㅤ [amy](https://github.com/Ghost1amy)
 
 
