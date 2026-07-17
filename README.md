@@ -57,9 +57,15 @@
 
 
 
-<p align="center">
-  <img width="600" height="90" src="https://cdn.discordapp.com/attachments/1282985399051878441/1517448402420498452/line-goss-g2.gif?ex=6a5b3b73&is=6a59e9f3&hm=aecdc48b2f0ec3329dd09639f312059cdacb07aace2e3ed7005c242bed91e365&">
-</p>
+
+
+<div align="center">
+
+![Dark Mode Logo](https://cdn.discordapp.com/attachments/1282985399051878441/1517448402420498452/line-goss-g2.gif?ex=6a5b3b73&is=6a59e9f3&hm=aecdc48b2f0ec3329dd09639f312059cdacb07aace2e3ed7005c242bed91e365&)
+
+</div>
+
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  ㅤ   ㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  ㅤ   ㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  ㅤ   ㅤ
