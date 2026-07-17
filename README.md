@@ -44,7 +44,7 @@
 
 
 <p align="center">
-  <img width="600" height="90" src="https://cdn.discordapp.com/attachments/1282985399051878441/1517448402420498452/line-goss-g2.gif?ex=6a365173&is=6a34fff3&hm=bb53e0cea4300218596f02097d1905b944ed42231d230893fe93b170fc7a1903&/460/100">
+  <img width="600" height="90" src="https://cdn.discordapp.com/attachments/1282985399051878441/1527625228056793098/ezgif.com-gif-maker_1.gif?ex=6a5b575c&is=6a5a05dc&hm=fb2fd4f2c9363595ec3b3d27f62540019da1710364511a9b360414507934534c&">
 </p>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  ㅤ   ㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  ㅤ   ㅤ
