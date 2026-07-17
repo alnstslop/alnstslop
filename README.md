@@ -21,10 +21,8 @@
 
 
  
-  
-  <p align="center">
-  <img width="560" height="100" src="https://cdn.discordapp.com/attachments/1282985399051878441/1517448402147872868/line-tako01.gif?ex=6a5b3b73&is=6a59e9f3&hm=601a4c40cf6e737ecb3901dc6011f0cd0efb7cf86d05e9db4864b12af06b09f6&">
-</p>
+
+  ![Dark Mode Logo](https://cdn.discordapp.com/attachments/1282985399051878441/1517448402147872868/line-tako01.gif?ex=6a5b3b73&is=6a59e9f3&hm=601a4c40cf6e737ecb3901dc6011f0cd0efb7cf86d05e9db4864b12af06b09f6&)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  ㅤ   ㅤ[guns.lol](https://guns.lol/alnstslop)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  ㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  ㅤ   ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  ㅤ   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   ㅤ ㅤㅤ 
